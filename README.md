@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @minhhpkp
-- 👀 I’m interested in Solving problems of the world e.g protecting the environment etc.
+- 👀 I’m interested in 🤔🤷‍♀️
 - 🌱 I’m currently learning Computer Science.
-- 💞️ I’m looking to collaborate on Future Projects
+- 💞️ I’m looking to collaborate on Future Projects (maybe?)
 - 📫 How to reach me: phamquangminh1659@gmail.com
 
 <!---
